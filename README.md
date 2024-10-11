@@ -1,4 +1,4 @@
-Missão Prática - Nível 1 - Mundo 3 Parti 02😊
+Missão Prática - Nível 1 - Mundo 3 Parte 02😊
 
 RPG0014  - Iniciando o caminho pelo Java
 
